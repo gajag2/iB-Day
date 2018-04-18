@@ -3,4 +3,4 @@
 
 ### Support or Contact
 
-Having trouble with IB-Day app? Please contact as on email jasmina.zoram@icloud.com
+Having trouble with IB-Day app? Please contact as on email jasmina.zoran@icloud.com
